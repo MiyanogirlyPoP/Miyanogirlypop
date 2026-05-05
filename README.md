@@ -1,8 +1,7 @@
-ᴛᴀʟʟ
-ꜱᴋɪɴɴʏ                                                         
-ʀɪᴄʜ
-ʙɪᴛᴄʜ
-
+Blonde
+Skinny
+Rich
+Bitch
 
 <img width="995" height="658" alt="Snímek obrazovky 2026-04-30 195618" src="https://github.com/user-attachments/assets/b9e782a5-7b10-497d-9037-d42a40c1f905" />
 
