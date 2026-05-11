@@ -3,8 +3,8 @@ Skinny
 Rich
 Bitch
 
-<img width="995" height="658" alt="Snímek obrazovky 2026-04-30 195618" src="https://github.com/user-attachments/assets/b9e782a5-7b10-497d-9037-d42a40c1f905" />
-
+<img width="736" height="414" alt="cef2c2abad449d7552fe0aad5eed16c8" src="https://github.com/user-attachments/assets/ba314adf-bfa6-41d8-98d4-7a62d970e39f" />
+I love them so much
 
 
 
