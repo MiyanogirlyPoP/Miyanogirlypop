@@ -1,10 +1,6 @@
-Blonde
-Skinny
-Rich
-Bitch
 
-<img width="736" height="414" alt="cef2c2abad449d7552fe0aad5eed16c8" src="https://github.com/user-attachments/assets/ba314adf-bfa6-41d8-98d4-7a62d970e39f" />
-I love them so much
+
+
 
 
 
