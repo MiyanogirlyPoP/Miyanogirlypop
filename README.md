@@ -8,14 +8,9 @@
 
 
 
+ᴛʜᴀɴᴋ ʏᴏᴜ ꜰᴏʀ ʀᴇᴀᴅɪɴɢ ᴍᴡᴀʜ ᴍᴡᴀʜ                               
 
-
-
-<img width="1200" height="603" alt="146124669_p0_master1200" src="https://github.com/user-attachments/assets/8a27cfcb-2dae-49a7-a2e4-3c51215fe950" />
-
-
-ᴛʜᴀɴᴋ ʏᴏᴜ ꜰᴏʀ ʀᴇᴀᴅɪɴɢ ᴍᴡᴀʜ ᴍᴡᴀʜ
-
+<img width="2048" height="1487" alt="HKYqp__XkAAPr0y" src="https://github.com/user-attachments/assets/b87e213e-9be3-45c8-ad4a-a1550a3d1a24" />
 
 
 
