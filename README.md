@@ -11,8 +11,8 @@
 
 
 
-ᴏᴛʜᴇʀᴡɪꜱᴇ, ɪ'ᴍ ᴏᴘᴇɴ ᴛᴏ ᴏᴛʜᴇʀꜱ ᴡʜᴏ ᴍɪɢʜᴛ ɴᴇᴇᴅ ʜᴇʟᴘ,ᴀʀᴇ ʟᴏɴᴇʟʏ, ᴏʀ ʜᴀᴠɪɴɢ ʜᴀʀᴅ ᴛɪᴍᴇꜱ!!.
-<img width="735" height="512" alt="image" src="https://github.com/user-attachments/assets/29da4f7f-61f7-4eb8-9530-c4931044c504" />
+<img width="1200" height="603" alt="146124669_p0_master1200" src="https://github.com/user-attachments/assets/8a27cfcb-2dae-49a7-a2e4-3c51215fe950" />
+
 
 ᴛʜᴀɴᴋ ʏᴏᴜ ꜰᴏʀ ʀᴇᴀᴅɪɴɢ ᴍᴡᴀʜ ᴍᴡᴀʜ
 
